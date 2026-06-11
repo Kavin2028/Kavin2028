@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ I’m Kavin P Student Of Saranathan College of Engineering<br>⚡ Completed BE CSE <br>🌱 I’m currently learning and Eager to explore opportunities<br>
+⚡ I’m Kavin P Currently pursuing MTech in NIT Kurukshetra<br>⚡ Completed BE CSE in Saranathan College of Engineering <br>🌱 I’m currently learning and Eager to explore opportunities<br>
 
 
 ## 🌐 Socials:
